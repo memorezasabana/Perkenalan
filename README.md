@@ -1,4 +1,4 @@
-![ALT TEXT](https://github.com/memorezasabana/Perkenalan/blob/master/2Memoreza.jpg)
+![ALT TEXT](https://github.com/memorezasabana/Perkenalan/blob/master/Memoreza.jpg)
 # 𝙽𝙰𝙼𝙰 𝙻𝙴𝙽𝙶𝙺𝙰𝙿 : 𝙼𝙴𝙼𝙾𝚁𝙴𝚉𝙰 𝚂𝙰𝙱𝙰𝙽𝙰 
 # 𝙽𝙰𝙼𝙰 𝙿𝙰𝙽𝙶𝙶𝙸𝙻𝙰𝙽 : 𝙼𝙾𝚉𝙰 
 # 𝚃𝙴𝙼𝙿𝙰𝚃, 𝚃𝙰𝙽𝙶𝙶𝙰𝙻 𝙻𝙰𝙷𝙸𝚁 : 𝚃𝚄𝙱𝙰𝙽, 𝟷𝟼 𝙾𝙺𝚃𝙾𝙱𝙴𝚁 𝟸𝟶𝟶𝟹 
